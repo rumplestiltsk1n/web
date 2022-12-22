@@ -16,7 +16,4 @@
 
 ![Screenshot 22 12 2022 18-23-36_065](https://user-images.githubusercontent.com/79450629/209178135-758a90f9-6d95-4b54-a867-7ddad346ccca.png)
 
-
-
-
-
+![Screenshot 22 12 2022 18-31-08_266](https://user-images.githubusercontent.com/79450629/209179525-ae1ef1ca-7fe0-4be0-98cd-ed90d245196d.png)
